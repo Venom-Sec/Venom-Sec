@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Venom-Sec
+- 👀 I’m interested in Decentralization
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on security
+- 📫 How to reach me protonmail.admin04@protonmail.com
